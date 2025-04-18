@@ -1,6 +1,6 @@
 ## Hello, I am Calvin Mwaniky🚀 
 
- 🎓 BBIT student at Strathmore University.
+ 🎓 BBIT Graduate from Strathmore University.
 🧠 Designer and developer.
 🧠 Business enthusiast.
 
